@@ -1,5 +1,5 @@
 # 🔥About Me
-I'm Andrei, I love The Strokes and the Persona games 🗣️‼️🔥
+I'm Andrei, I live in Guayaquil, Ecuador and I'm 17. I love The Strokes and the Persona games 🗣️‼️🔥
 
 ![Add text](https://meccha-japan.com/544264-home_default/plush-keychain-makoto-yuki-p3r-persona-3-reload.jpg)
 
